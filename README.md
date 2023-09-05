@@ -49,6 +49,5 @@ Quaisquer dúvidas, enviei um email para: jmbengui@bulir.com
 Simplify. Connect. Empower.
 ```
 
-Boa sorte! Nosso TIME te aguarda... 👍
 
 Bulir. Fácil, rápido e seguro
